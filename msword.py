@@ -1,0 +1,1 @@
+This is MS Word developed by Dev1.
